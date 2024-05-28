@@ -1,0 +1,1 @@
+# Photoshop-Best-Version-No-Crack-Legal
